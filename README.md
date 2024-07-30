@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PriyanshuRahul77
+- 👋 Hi, I’m P.M.Priyanshu kumar Jena
 - 👀 I’m interested in money making
 - 🌱 I’m currently learning programming language
 
